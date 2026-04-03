@@ -1,0 +1,2 @@
+# privacity
+politica de privacidade
